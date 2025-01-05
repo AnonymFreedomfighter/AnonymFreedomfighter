@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AnonymFreedomfighter
 - 👀 I’m interested in GreyHatHacking(Prankhacking).
-- 🌱 I’m currently learning how to prank friends with Kali Linux Tools;)
+- 🌱 I’m currently learning to improve my hacking skills.
 - 💞️ I’m looking to collaborate on Telegram or Discord
 - 📫 How to reach me ... Telegram.
-- ⚡ Fun fact: Im half arab:)
+- ⚡ Fun fact: Im half arab and half russian(I can't speak any russian) :)
